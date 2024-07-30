@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning JS
 - 💞️ I’m looking to collaborate on the UNIVERSE 😲
-- 📫 How to reach me: discord @aura.is.cool
+- 📫 How to reach me: discord @aura.is.me
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I like turtles
 
